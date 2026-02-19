@@ -5,3 +5,4 @@
 - "Change may feel dangerous, but its inevitable. Will you hide in the safety of tradition or let the youth dream."
 - "Muad'dib was not your freind, Stilgar. He was you GOD!!!"
 - "The spice must flow."
+- "Fear is the mind-killer."
