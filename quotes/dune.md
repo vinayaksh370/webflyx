@@ -2,3 +2,5 @@
 - "A Great Man Doesn't Seek To Lead. He's Called To It."
 - "An Animal Caught In A Trap Will Gnaw Off Its Own Leg To Escape. What Will You Do?"
 - "When Is A Gift Not A Gift?"
+- "Change may feel dangerous, but its inevitable. Will you hide in the safety of tradition or let the youth dream."
+- "Muad'dib was not your freind, Stilgar. He was you GOD!!!"
